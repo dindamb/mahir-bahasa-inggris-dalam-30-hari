@@ -1,9 +1,9 @@
 # Lancar Bahasa Inggris dalam 30 Hari
 
 <h1><strong>Mau Lancar Bahasa Inggris !!! - MAHIR Bahasa Inggris dalam 30 Hari<strong></h1>
-<p>Halo, saya ingin memberitahu anda bahwa  anda bisa <b>Mahir Bahasa Inggris</d> dan <b>Lancar Bahasa Inggris</d> dalam <b>30 Hari</d> silahkan kunjungi kami.
+<p>Halo, saya ingin memberitahu anda bahwa anda bisa <b>Mahir Bahasa Inggris</d> dan <b>Lancar Bahasa Inggris</d> dalam <b>30 Hari</d> silahkan kunjungi kami.
 
-<h2><a href="http://bit.ly/Daftar-BahasaInggrisTeam" title="LANCAR BAHASA INGGRIS dala 30 Hari" target="_blank">LANCAR BAHASA INGGRIS dala 30 Hari</a></h2>
+<h2><a href="http://bit.ly/Daftar-BahasaInggrisTeam" title="LANCAR BAHASA INGGRIS dalam 30 Hari" target="_blank">LANCAR BAHASA INGGRIS dalam 30 Hari</a></h2>
 
 <p>anda akan tahu kana mahir bahasa inggris gak perlu pakai kursus bahasa inggris segala,<br/>
 
